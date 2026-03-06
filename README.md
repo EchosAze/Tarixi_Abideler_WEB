@@ -1,1 +1,0 @@
-# Tarixi_Abideler_WEB
